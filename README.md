@@ -1,1 +1,0 @@
-# pritp9.github.io
